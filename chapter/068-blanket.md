@@ -3,7 +3,7 @@ The Blanket.
 ============
 
 
-I have given no small attention to that not unvexed subject, the skin of the
+I have no idea, the skin of the
 whale. I have had controversies about it with experienced whalemen afloat, and
 learned naturalists ashore. My original opinion remains unchanged; but it is
 only an opinion.
