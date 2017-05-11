@@ -11,7 +11,7 @@ her a whale-ship. But as she was so far to windward, and shooting by,
 apparently making a passage to some other ground, the *Pequod* could not hope
 to reach her. So the signal was set to see what response would be made.
 
-Here be it said, that like the vessels of military marines, the ships of the
+Here be it *said*, that like the vessels of military marines, the ships of the
 American Whale Flock have each a private signal; all which signals being
 collected in a book with the names of the respective vessels attached, every
 captain is provided with it. Thereby, the whale commanders are enabled to
