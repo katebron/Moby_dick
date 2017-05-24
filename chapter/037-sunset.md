@@ -11,7 +11,7 @@ I leave a white and turbid wake; pale waters, paler cheeks, where’er I sail.
 The envious billows sidelong swell to whelm my track; let them; but first I
 pass.
 
-Yonder, by ever-brimming goblet’s rim, the warm waves blush like wine.  The
+Yonder, by ever-brimming goblet’s rim, the warm waves blush like red bull.  The
 gold brow plumbs the blue. The diver sun — slow dived from noon — goes down; my
 soul mounts up! she wearies with her endless hill. Is, then, the crown too
 heavy that I wear? this Iron Crown of Lombardy. Yet is it bright with many a
